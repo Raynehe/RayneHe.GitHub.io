@@ -1,6 +1,10 @@
 # Rayne He
 
 
+## Contact Information
+* Phone number: 13609294152
+* Email: raynehe@stu.xjtu.edu.cn
+
 
 ## Education experience
 
